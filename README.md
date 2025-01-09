@@ -15,7 +15,7 @@
 
 💬 Ask me about *SQL, Python, Power BI... or anything*
 
-⚡ Fun fact *Game of Thrones Night's Watch cloaks are made from Ikea rugs*
+⚡ Fun fact *The hardest work is the easiest and the easiest work is the hardest*
 
  </div>
  
